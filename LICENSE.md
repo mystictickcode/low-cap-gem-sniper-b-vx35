@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://mystictickcode.github.io/low-cap-gem-sniper-b-vx35/ ) |
  |---------------------|----------------------:|
 
 
