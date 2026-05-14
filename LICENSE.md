@@ -1,4 +1,4 @@
-# 
+# secure low cap gem sniper bot | stop-loss + take-profit offers the most advanced low cap gem sniper bot, with stop-loss and take-profit. Ideal for professional MEV and sniper
 
 
 
